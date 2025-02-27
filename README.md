@@ -1,3 +1,1 @@
-wip :3
-
-ill work on this soon dw /silly.
+[rentry](https://rentry.co/GlHUN)
